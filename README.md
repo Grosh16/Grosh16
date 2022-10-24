@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Grosh16
+- 👀 I’m interested in mobile application development
+- 🌱 I’m currently learning application development
+- 💞️ I’m looking to collaborate on: mobile app developers, designers, 3d designers, marketers
+- 📫 How to reach me: gddrybidguh@gmail.com
